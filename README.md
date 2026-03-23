@@ -1,2 +1,2 @@
 # Resume
-Click here to view my resume: https://raw.githubusercontent.com/Frost1012/Resume/main/Shamel_Resume.pdf
+Click here to view my resume: https://drive.google.com/file/d/1OocBI6pQzZgcgP9HOWJcBTmAZwNmgnq4/preview
